@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+
 **qmutz/qmutz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -13,8 +13,23 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
 
+&nbsp;<hr name=gh><br>&nbsp;
+
+gh--18-td
+<space name=mono><charset=emoticons name=gh>GH</charset></space>&gt;
+
+Smileys & People. 😀. 😃. 😄. 😁. 😆. 😅. 😂. 🤣. 🥲. ☺️. 😊. 😇. 🙂. 🙃. 😉. 😌. 😍. 🥰 ... 🪵. 🌱. 🌿. ☘️. 🍀. 🎍. 🪴. 🎋. 🍃. 🍂. 🍁. 🍄. 🐚. 🪨. 🌾. 💐. 🌷. 🌹. 🥀. 🌺. 🌸. 🌼. 🌻 ... 🍦. 🥧. 🧁. 🍰. 🎂. 🍮. 🍭. 🍬. 🍫. 🍿. 🍩. 🍪. 🌰. 🥜. 🍯. 🥛. 🍼. 🫖. ☕️. 🍵. 🧃. 🥤. 🧋 ... 🛋. 🛏. 🛌. 🧸. 🪆. 🖼. 🪞. 🪟. 🛍. 🛒. 🎁. 🎈. 🎏. 🎀. 🪄. 🪅. 🎊. 🎉. 🎎. 🏮. 🎐. 🧧. ✉️.
+
+... 🌻🌼🌷🌱🌲🌳🌴🌵🌿🍀🍁🍂🍇🍉🍌🍎🍏🍑🍒🍓🍄🧀🥣🍜🍦🍧🍨🍩🍰🧁🍬🍭🍮🥛☕ ... ⚡⛄🔥💧🎃🎄🧨✨🎈🎉🎊🎀🎁🎗🎖🏆🏅🥇🥈🥉🎯🎲♤♥♢♧🔔🎵☎🔍🔎💡📔📕📖 ... ❣💔❤️‍🔥❤️‍🩹❤🧡💛💚💙💜🤎🖤🤍💯💢💥💫💦💨🕳💣💬👁️‍🗨️🗨🗯💭💤👋 ... 🦀🦞🦐🦑🦪🍦🍧🍨🍩🍪🎂🍰🧁🥧🍫🍬🍭🍮🍯🍼🥛☕🫖🍵🍶🍾🍷🍸🍹🍺🍻🥂🥃🥤🧋​ ...
+
+... 🚵 🤸 🤼 🤽 🤾 🤹 🧘 🛀 🛌 👭 👫 👬 💏 💑 👪 👤 👥 👣 🦰 🦱 🦳 🦲 🐵 🐒 🦍 🐶 🐕 🐩 🐺 ... 🐁 🐀 🐹 🐰 🐇 🦔 🦇 🐻 🐨 🐼 🦘 🦡 🐾 🦃 🐔 🐓 🐣 🐤 🐥 🐦 🐧 🦅 🦆 🦢 🦉 🦚 🦜 🐸 ... 🧀 🍖 🍗 🥩 🥓 🍔 🍟 🍕 🌭 🥪 🌮 🌯 🥙 🥚 🍳 🥘 🍲 🥣 🥗 🍿 🧂 🥫 🍱 🍘 🍙 🍚 🍛 🍜 ...
+
+... 💋💌💘💝💖💗💓💞💕💟❣💔❤🧡💛💚💙💜🤎🖤🤍💯💢💥💫💦💨🕳💣💬🗨🗯💭💤👋 ... 🪱🦠💐🌸💮🏵🌹🥀🌺🌻🌼🌷⚘🌱🪴🌲🌳🌴🌵🌾🌿☘🍀🍁🍂🍃🍇🍈🍉🍊🍋🍌🍍🥭🍎 ... 🦀🦞🦐🦑🦪🍦🍧🍨🍩🍪🎂🍰🧁🥧🍫🍬🍭🍮🍯🍼🥛☕🫖🍵🍶🍾🍷🍸🍹🍺🍻🥂🥃🥤🧋 ... 🌬🌀🌈🌂☂️☔⛱⚡❄☃️⛄☄🔥💧🌊🎃🎄🎆🎇🧨✨🎈🎉🎊🎋🎍🎎🎏🎐🎑🧧🎀🎁​ ...
+
+people • 🐻🌻 animals • 🍔🍹 food • 🎷⚽️ activities • 🚘🌇 travel • 💡🎉 objects ... 😃 😄 😁 😆 😅 😂 🤣 ☺️ 😊 😇 🙂 🙃 😉 😌 😍 🥰 😘 😗 😙 😚 😋 😛 😝 😜 🤪 🤨 🧐 🤓 😎 ... 🍘 🍥 🥠 🥮 🍢 🍡 🍧 🍨 🍦 🥧 🧁 🍰 🎂 🍮 🍭 🍬 🍫 🍿 🍩 🍪 🌰 🥜 🍯 🥛 🍼 ☕️ 🍵 ... 🧻 🚽 🚰 🚿 🛁 🛀 🧼 🪒 🧽 🧴 🛎 🔑 🗝 🚪 🪑 🛋 🛏 🛌 🧸 🖼 🛍 🛒 🎁 🎈 🎏 🎀 🎊 🎉 ...
+
+👉🏿🤣👈🏻👈🏿😶😑🏳️‍⚧️💗💓💖💘💝💕💞😀😃😄😁😆☺️🥲🤣😂😅😊😇🙂🙃​😉😗😘🥰😍😌😙😚😋😛😝🤓🧐🤨🤪😜😚😙😋😋😛😛😛🧐🥳🤪😎🧐🧐🤓😏🥳🥳🥸😎😎​ ...
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=qmutz)](https://github.com/anuraghazra/github-readme-stats)
 
